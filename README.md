@@ -1,4 +1,4 @@
 chenruifan.github.com
 =====================
 
-Chenrui Fan's New Personal Page
+Chenrui Fan's Personal Page
